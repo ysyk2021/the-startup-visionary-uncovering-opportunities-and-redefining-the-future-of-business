@@ -8,7 +8,4 @@ In addition, this book will help you build self-awareness, embrace a growth mind
 
 Whether you are an aspiring entrepreneur or a seasoned pro, The Startup Visionary: Uncovering Opportunities and Redefining the Future of Business provides valuable insights and strategies to help you achieve success in the fast-paced world of business.
 
-
-
-
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
