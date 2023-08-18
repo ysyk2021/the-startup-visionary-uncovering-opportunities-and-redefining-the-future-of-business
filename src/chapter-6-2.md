@@ -46,5 +46,3 @@ Conclusion
 ----------
 
 Applying startup visionary thinking to corporate innovation and intrapreneurship is essential for organizations seeking to redefine their future in a rapidly evolving business landscape. By fostering a culture of experimentation, promoting cross-functional collaboration, and embracing emerging technologies, corporations can unlock their innovative potential. With the right strategies and mindset, companies can adapt to market disruptions, seize new opportunities, and remain competitive in an ever-changing world.
-
-Remember, this chapter focuses on general principles and strategies for corporate innovation and intrapreneurship. It does not touch upon any specific political, territorial, or human rights issues.
