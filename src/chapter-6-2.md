@@ -1,5 +1,3 @@
-Applying Startup Visionary Thinking for Corporate Innovation and Intrapreneurship
-==========================================================================================
 
 In today's rapidly evolving business landscape, corporations strive to stay competitive by embracing innovation and fostering entrepreneurial spirit within their organizations. This chapter explores the concept of applying startup visionary thinking to drive corporate innovation and enable intrapreneurship. We will delve into the strategies, mindset, and practices that can help businesses unlock new opportunities and redefine their future in an ever-changing market.
 

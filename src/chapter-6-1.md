@@ -1,5 +1,3 @@
-Using Startup Visionary Thinking for Social Enterprises and Non-profit Organizations
-=============================================================================================
 
 In this chapter, we will explore how the principles of startup visionary thinking can be applied to social enterprises and non-profit organizations. While startups are typically associated with for-profit ventures, their innovative and agile mindset can also be invaluable in addressing complex social challenges and driving positive change. By adopting a startup visionary approach, social entrepreneurs and non-profit leaders can unlock new opportunities, reframe problems, and redefine the future of their organizations.
 

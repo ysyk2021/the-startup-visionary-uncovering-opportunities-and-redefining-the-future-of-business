@@ -1,4 +1,3 @@
-# Using Startup Visionary Thinking for Public Service and Government Roles
 
 In this chapter, we will explore how startup visionary thinking can be applied to public service and government roles. While the startup world may seem far removed from the bureaucratic and regulated nature of government, adopting a startup mindset can bring innovation, efficiency, and transformative change to the public sector. Let's delve into the key principles and strategies for using startup visionary thinking in public service and government roles.
 

@@ -1,5 +1,3 @@
-Chapter 6: Applying Startup Visionary Thinking Across Different Settings and Platforms
-======================================================================================
 
 Startup visionary thinking can be applied across a variety of settings and platforms, including social enterprises, non-profit organizations, corporate innovation, intrapreneurship, public service, and government roles. In this chapter, we will explore some effective strategies for applying startup visionary thinking in these different contexts.
 

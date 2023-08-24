@@ -1,5 +1,3 @@
-Chapter 3: Strategies for Building a Startup Visionary Mindset
-==============================================================
 
 Building a startup visionary mindset is essential to achieving success as an entrepreneur. In this chapter, we will explore strategies for building a startup visionary mindset, including developing self-awareness and understanding of personal entrepreneurial style, assessing market needs and opportunities, and creating a plan for consistent practice of startup visionary thinking.
 

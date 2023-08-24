@@ -1,5 +1,3 @@
-Identifying the Components of Effective Visionary Thinking Strategies for Entrepreneurs
-==================================================================================================================================
 
 In order to succeed as a startup visionary, it is important to understand the key components of effective visionary thinking strategies. In this chapter, we will explore some effective strategies for identifying these components and developing a mindset that enables entrepreneurs to drive innovation and achieve success.
 
